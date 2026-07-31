@@ -1,3 +1,3 @@
 # Kasrev Loading Screen
 
-### Purchase Link https://creator.tebex.io
+### Purchase Here https://creator.tebex.io
